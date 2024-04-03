@@ -19,7 +19,7 @@ Currently seeking new opportunities to collaborate on exciting projects and cont
 #### 📫 Get in Touch:
 - Email: amirrow.movahedian@gmail.com
 - GitHub: https://github.com/amirrowam
-- Telegram: https://t.me/BaToMe
+- Telegram: https://t.me/BaToMee
 - Instagram: https://www.instagram.com/_itsamirow
 
 

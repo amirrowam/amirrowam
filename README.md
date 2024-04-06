@@ -13,7 +13,7 @@ I'm committed to continuous learning and staying updated with the latest advance
 Currently seeking opportunities to collaborate on exciting projects and contribute to innovative web solutions. If you're looking for a dedicated frontend developer with a passion for creating engaging user experiences, let's connect!
 
 📫 Get in Touch:
-Email: amirrow.movahedian@gmail.com
-GitHub: https://github.com/amirrowam
-Telegram: https://t.me/BaToMee
-Instagram: https://www.instagram.com/_itsamirow
+-Email: amirrow.movahedian@gmail.com
+-GitHub: https://github.com/amirrowam
+-Telegram: https://t.me/BaToMee
+-Instagram: https://www.instagram.com/_itsamirow
